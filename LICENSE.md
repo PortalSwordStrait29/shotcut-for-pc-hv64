@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with best Shotcut for PC | Shotcut for Windows Overlay | audio-sync + color-correction, the #1 overlay. Includes audio-sync and
 
 
 
